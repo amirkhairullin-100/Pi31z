@@ -1,1 +1,1 @@
-Hello, my dear Friend!
+no code no pain
